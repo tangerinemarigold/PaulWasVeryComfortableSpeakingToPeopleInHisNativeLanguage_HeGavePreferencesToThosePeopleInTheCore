@@ -1,0 +1,1 @@
+# PaulWasVeryComfortableSpeakingToPeopleInHisNativeLanguage_HeGavePreferencesToThosePeopleInTheCore
